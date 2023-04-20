@@ -2,4 +2,6 @@
 
 Hola soy nuevo en esto xd
 
-What time is it?
+Tell me about yourself
+
+I am Amilcar xd
